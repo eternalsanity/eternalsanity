@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @eternalsanity
+- 🌱 I’m currently learning
+- 😄 Pronouns: he/him
